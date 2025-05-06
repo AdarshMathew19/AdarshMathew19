@@ -39,8 +39,8 @@ Feel free to reach out or follow me on any of these platforms:
 
 * 📸 [Instagram](https://instagram.com/moto_duker)
 * 💼 [LinkedIn](https://linkedin.com/in/adarshmathew)
-* 📧 [Email](mailto:adarshmathew19@gmail.com)
-* 🌐 [Linktree](https://linktr.ee/your_linktree)
+* 📧 [Email](https://mail.google.com/mail/u/0/?fs=1&to=adarshmathew19@gmail.com&tf=cm)
+* 🌐 [Linktree](https://linktr.ee/adarshmathew)
 
 ## ✨ Fun Fact
 
