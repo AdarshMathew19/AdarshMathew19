@@ -2,7 +2,7 @@
 
 Welcome to my GitHub profile! I'm thrilled to have you here.
 
-### 🙋‍♂️ About Me
+## 🙋‍♂️ About Me
 
 I'm a passionate and enthusiastic Computer Science student currently pursuing my degree at **Amal Jyothi College of Engineering**. My journey in tech started with a curiosity about how things work behind the scenes—and ever since, I've been diving deeper into the world of code and development.
 
