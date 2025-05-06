@@ -37,9 +37,9 @@ I believe in lifelong learning. I'm currently exploring:
 
 Feel free to reach out or follow me on any of these platforms:
 
-* 📸 [Instagram](https://instagram.com/your_instagram)
-* 💼 [LinkedIn](https://linkedin.com/in/your_linkedin)
-* 📧 Email: [your\_email@gmail.com](mailto:your_email@gmail.com)
+* 📸 [Instagram](https://instagram.com/moto_duker)
+* 💼 [LinkedIn](https://linkedin.com/in/adarshmathew)
+* 📧 [Email](mailto:adarshmathew19@gmail.com)
 * 🌐 [Linktree](https://linktr.ee/your_linktree)
 
 ## ✨ Fun Fact
